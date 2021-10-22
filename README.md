@@ -1,1 +1,1 @@
-# OTVETi_EGE2022.github.io
+# OTVETi_EGE100.github.io
